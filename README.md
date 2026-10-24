@@ -1,0 +1,1 @@
+# Gimedukasi_kelas11_karyatulisilmiah
